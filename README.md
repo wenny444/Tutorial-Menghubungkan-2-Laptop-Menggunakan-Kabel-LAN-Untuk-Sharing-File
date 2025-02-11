@@ -1,1 +1,2 @@
-# Tutorial-Menghubungkan-2-Laptop-Menggunakan-Kabel-LAN-Untuk-Sharing-File
+# *Wenny Arthaliawati*
+# *09030282327011*
